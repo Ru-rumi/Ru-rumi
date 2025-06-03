@@ -1,6 +1,8 @@
 ‿︵‿︵୨˚̣̣̣͙୧ - - - - - ୨˚̣̣̣͙୧‿︵‿︵
 
-![SuzuAnzu_by_binobinyo_2 (1)](https://github.com/user-attachments/assets/ad8e7a41-1202-4e13-ae95-db81dfde5d7b)
+![Untitled89_20250602083206](https://github.com/user-attachments/assets/cc2b7515-6a0f-4673-a8e9-0ce6122db036)
+    (art made by me heh)
+
 
 
 ‿︵‿︵୨˚̣̣̣͙୧ - - 🍑 - - ୨˚̣̣̣͙୧‿︵‿︵
