@@ -1,4 +1,4 @@
 ![IMG_20250605_053154](https://github.com/user-attachments/assets/a1c70642-01f1-4ad0-a0eb-12fdfae48881)
-<img width="2254" height="2994" alt="Untitled117_20251116072145" src="https://github.com/user-attachments/assets/eb515d27-a529-48cf-9625-e3204e765478" />
+<img width="2254" height="2994" alt="Untitled118_20251207220300" src="https://github.com/user-attachments/assets/6aee07ec-fce6-4fc3-9d90-ab6b97929742" />
 ![IMG_20250605_053133](https://github.com/user-attachments/assets/969e2ac2-065e-462e-93c2-3de112b83313)
 <p align="center">( art made by me, pfp made by @Sapphire_4825 )
