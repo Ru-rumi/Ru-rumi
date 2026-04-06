@@ -1,4 +1,4 @@
 ![IMG_20250605_053154](https://github.com/user-attachments/assets/a1c70642-01f1-4ad0-a0eb-12fdfae48881)
-![Image](https://gcdnb.pbrd.co/images/UYSkscXRxLIZ.png?o=1)
+<img width="720" height="720" alt="13725" src="https://github.com/user-attachments/assets/dc763cab-175e-4c69-9fd6-fd40b76f2fcb" />
 ![IMG_20250605_053133](https://github.com/user-attachments/assets/969e2ac2-065e-462e-93c2-3de112b83313)
 <p align="center">( art made by me, pfp made by @Sapphire_4825 )
